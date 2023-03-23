@@ -4,7 +4,7 @@
 -----------------------------------------------------
 
 <p align="center">
-<img src="https://telegra.ph/file/f152177bf55c322885b92.jpg" alt="XD TEAM" width="100"/>
+<img src="https://telegra.ph/file/651fdd096d0308f23b85c.jpg" alt="XD TEAM" width="100"/>
 
 
 </p>
