@@ -35,7 +35,7 @@
 [klik ini untuk gabung](https://chat.whatsapp.com/EptfXz8y5gd8Wsa1hh0Vag)
 
 ## DEVELOPER THIS PROJECT
-- (KurrXd)
+- (4ksanzz)
 
 
 
